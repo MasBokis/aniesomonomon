@@ -88,6 +88,9 @@ https://github.com/MasKobis/aniesomonomon/assets/158810071/346d9614-9b9a-4c95-b7
 
 
 ## Dp 0 = JAKHABITAT
+![jakhabitat](https://github.com/MasBokis/aniesomonomon/assets/158810071/75d0b1ad-aef0-468c-b9ce-df7c276fc31e)
+
+
 ## Bunga Tabebuya Bermekaran di Kawasan Kemang dan Jalan Sudirman
 ![tabebuya](https://github.com/MasKobis/aniesomonomon/assets/158810071/9ee6dde5-d224-4b9a-a31c-0f8ea4f9d20d)
 
@@ -176,12 +179,61 @@ https://github.com/MasKobis/aniesomonomon/assets/158810071/d089470e-7d2d-4b8d-b1
 
 
 ## KJP Plus.
+![kjp1](https://github.com/MasBokis/aniesomonomon/assets/158810071/9f002347-4dbc-4c6d-a9a6-c9b5672ca062)
+![kjp2](https://github.com/MasBokis/aniesomonomon/assets/158810071/110835ed-651f-4d07-88b4-8709d1c49fe2)
+
 
 ## Sarana Jaringan Utilitas Terpadu (SJUT)
+
+
+https://github.com/MasBokis/aniesomonomon/assets/158810071/8c73477d-762b-4be2-bcc9-dc9b3c60c104
+
+
+https://github.com/MasBokis/aniesomonomon/assets/158810071/e3854583-b898-4d13-8dff-4d9a5ada947c
+
+
+
+
 ## Wajah Halte Bundaran HI
+
+
+https://github.com/MasBokis/aniesomonomon/assets/158810071/7b158f3c-cefd-4506-8c78-be040b50b6d9
+
+
+
 ## Renovasi Gedung Kesenian Wayang Orang Bharata.
+
+
+https://github.com/MasBokis/aniesomonomon/assets/158810071/34e3e227-48eb-4f28-8117-8de048c68422
+![wayang2](https://github.com/MasBokis/aniesomonomon/assets/158810071/56151b26-1508-4420-94fb-49fd8f3a6767)
+
+
+
 ## Revitalisasi Kota Tua Batavia. 
+
+
+https://github.com/MasBokis/aniesomonomon/assets/158810071/bad63035-ae8c-42eb-bfae-269419c1e26d
+
+
 ## Halte Transjakarta Cakra Selaras Wahana (CSW-ASEAN TOD).
+
+
+https://github.com/MasBokis/aniesomonomon/assets/158810071/fd3ec5e3-d706-4c30-8dfe-2bbfaa4a2c22
+
+
 ## JPO Tapal Kuda Lenteng Agung.
+
+![lentengangung](https://github.com/MasBokis/aniesomonomon/assets/158810071/c5237660-55fd-4828-9627-8d287c33fbe1)
+
+https://github.com/MasBokis/aniesomonomon/assets/158810071/240cc0bb-9ae3-4284-8b4c-0a1abc0070f4
+
+
 ## Popart Jakarta.
+
+
+https://github.com/MasBokis/aniesomonomon/assets/158810071/b69da293-d25b-4e7b-8cee-7165e8938559
+
+
 ## Tiga JPO di Jalan Sudirman Jakarta.
+![jpo](https://github.com/MasBokis/aniesomonomon/assets/158810071/4e5b5b09-b8f0-4d86-8f6c-ed30870408f5)
+
