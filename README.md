@@ -272,4 +272,7 @@ https://github.com/MasBokis/aniesomonomon/assets/158810071/b69da293-d25b-4e7b-8c
 
 ## Disclaimer
 Semua konten page ini diambil dari Twitter [Air Jeruk](https://twitter.com/OrangeAqua55) di [tweet ini](https://twitter.com/OrangeAqua55/status/1750695517376676179)
+Aku full nyomot karena tidak seniat itu bikin konten 🙏
+I hope Kak Orange Jeruk understands
 
+Thank you kak!
