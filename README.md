@@ -25,6 +25,7 @@ https://github.com/MasKobis/aniesomonomon/assets/158810071/9035954a-4228-4874-a7
 
 ### Program Pangan Murah Bersubsidi.
 Subsidi pangan murah berdasarkan Pergub No.6 tahun 2018.
+
 Anies memanfaatkan prasarana yang tersedia untuk menyalurkan programnya. Hasil gubernur sebelumnya (Jakgrosir) tetap digunakan dan dimanfaatkan.
 
 https://github.com/MasKobis/aniesomonomon/assets/158810071/fbb8e29c-e0a6-4d0e-bb53-5d2fa24ce131
@@ -242,7 +243,9 @@ https://github.com/MasBokis/aniesomonomon/assets/158810071/34e3e227-48eb-4f28-81
 
 ### Revitalisasi Kota Tua Batavia. 
 Terintegrasi dengan transportasi umum seperti angkot, KRL, dan TransJakarta.
+
 Jalan-jalan di Kota Tua Batavia diperbaiki dan dilengkapi dengan trotoar.
+
 Meluncurkan program “Wisata Malam Jakarta” yang menjadi salah satu destinasi wisata utama.
 
 https://github.com/MasBokis/aniesomonomon/assets/158810071/bad63035-ae8c-42eb-bfae-269419c1e26d
@@ -272,7 +275,9 @@ https://github.com/MasBokis/aniesomonomon/assets/158810071/b69da293-d25b-4e7b-8c
 
 ## Disclaimer
 Semua konten page ini diambil dari Twitter [Air Jeruk](https://twitter.com/OrangeAqua55) di [tweet ini](https://twitter.com/OrangeAqua55/status/1750695517376676179)
+
 Aku full nyomot karena tidak seniat itu bikin konten 🙏
+
 I hope Kak Orange Jeruk understands
 
 Thank you kak!
