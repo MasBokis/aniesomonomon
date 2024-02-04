@@ -56,20 +56,72 @@ https://github.com/MasKobis/aniesomonomon/assets/158810071/1051f53f-dd10-4db9-b3
 
 
 ## Kartu Jakarta Mahasiswa Unggul (KJMU).
+
+
+https://github.com/MasKobis/aniesomonomon/assets/158810071/b3a434af-e4a4-482c-ab31-05fd6e971eb9
+
+https://github.com/MasKobis/aniesomonomon/assets/158810071/4b41c934-d77e-432d-92ef-9b2e901cfd16
+
+
+
 ## Kampung Akuarium
 ![akuarium](https://github.com/MasKobis/aniesomonomon/assets/158810071/1917667d-ffa3-4807-ad3e-37878fb9e5ce)
 
 ## Penyediaan Makanan Tambahan Anak Sekolah (PMT-AS).
+
+
+https://github.com/MasKobis/aniesomonomon/assets/158810071/346d9614-9b9a-4c95-b7a6-95d50070d546
+![pmtas2](https://github.com/MasKobis/aniesomonomon/assets/158810071/b7a69ed7-8030-4e15-889b-4ccf8bca30d3)
+![pmtas3](https://github.com/MasKobis/aniesomonomon/assets/158810071/749f0627-4b02-46d8-a415-0c84672ffc36)
+
+
+
 ## JPO Pinisi
+![pinisi](https://github.com/MasKobis/aniesomonomon/assets/158810071/274ddce5-6ce8-403c-a8c1-37874641f665)
+
+
 ## Flyover Tapal Kuda
+![tapalkuda](https://github.com/MasKobis/aniesomonomon/assets/158810071/1b98a14b-8066-4601-97a0-21fe5dc0ff59)
+
 ## Simpang Lima Pasar Senen
+![simpanglimasenen](https://github.com/MasKobis/aniesomonomon/assets/158810071/ffd1451b-14a7-4d61-b842-8e6b546eaf8b)
+
+
 ## Dp 0 = JAKHABITAT
 ## Bunga Tabebuya Bermekaran di Kawasan Kemang dan Jalan Sudirman
+![tabebuya](https://github.com/MasKobis/aniesomonomon/assets/158810071/9ee6dde5-d224-4b9a-a31c-0f8ea4f9d20d)
+
+
 ## PPOP Ragunan
+![ppopragunan](https://github.com/MasKobis/aniesomonomon/assets/158810071/c49c42ef-ea73-4de8-88bd-a4a39b6ec721)
+
+
 ## Taman Literasi Martha Christina Tiahahu
+  ![tamanliterasi](https://github.com/MasKobis/aniesomonomon/assets/158810071/12ea2181-7ae5-44fa-8c44-889215b7bbe8)
+
+
 ## Jakarta International E-Prix Circuit (JIEC)
+![formulae](https://github.com/MasKobis/aniesomonomon/assets/158810071/051abd82-3a76-455a-8c91-482b08610daf)
+
+
 ## Plus Jakarta Sans Font
+![plus1](https://github.com/MasKobis/aniesomonomon/assets/158810071/bad9b763-e8b0-46be-b50b-a82bdebf929e)
+![plus2](https://github.com/MasKobis/aniesomonomon/assets/158810071/b1f1d8b7-4c51-466c-82c1-9f70780de88f)
+![plus3](https://github.com/MasKobis/aniesomonomon/assets/158810071/45317606-a2b0-4e79-809c-95e059fd7ad8)
+
+
+
 ## Taman Maju Bersama
+
+
+https://github.com/MasKobis/aniesomonomon/assets/158810071/06b083f7-f319-4bfa-ac37-2d34f0a1ec25
+
+
+https://github.com/MasKobis/aniesomonomon/assets/158810071/9956e22d-c749-4cf9-8d51-1d81c3b66b14
+
+
+
+
 ## Gapura Chinatown Glodok
 ![chinatown](https://github.com/MasKobis/aniesomonomon/assets/158810071/2f442a45-6fe2-4f69-90c1-82c16c8ff8cd)
 
@@ -77,24 +129,54 @@ https://github.com/MasKobis/aniesomonomon/assets/158810071/1051f53f-dd10-4db9-b3
 
 
 https://github.com/MasKobis/aniesomonomon/assets/158810071/e091dc5a-63aa-4290-8bfa-5e44d4d00e6d
-![tebet2](https://github.com/MasKobis/aniesomonomon/assets/158810071/59ce13de-3f83-4cc9-86c6-0b875dba72a0)
-![tebet3](https://github.com/MasKobis/aniesomonomon/assets/158810071/edb96011-d82c-40f1-820e-d28f2d5c2579)
-
 
 
 ## Hibahkan Alat Kremasi Kepada Umat Hindu di Jakarta.
 ## Tebet Eco Park
 ![tebet1](https://github.com/MasKobis/aniesomonomon/assets/158810071/c06c2dda-0cf2-415e-a01e-47a294553716)
+![tebet2](https://github.com/MasKobis/aniesomonomon/assets/158810071/59ce13de-3f83-4cc9-86c6-0b875dba72a0)
+![tebet3](https://github.com/MasKobis/aniesomonomon/assets/158810071/edb96011-d82c-40f1-820e-d28f2d5c2579)
 
 
 ## Pulau Sebira
+
+
+https://github.com/MasKobis/aniesomonomon/assets/158810071/11c48832-e9c5-4593-b67d-067cfe366edb
+
+
 ## OK-OCE = Jakpreneur (Jakarta Entrepreneurship).
+![okoc1](https://github.com/MasKobis/aniesomonomon/assets/158810071/aa0efff4-4b7d-41d2-9ca2-b5f48a280a0b)
+![okoc2](https://github.com/MasKobis/aniesomonomon/assets/158810071/af76bb27-bf6a-422b-99cf-83396c6de77d)
+
+
 ## Empat Sekolah Negeri Berkonsep Net Zero Carbon
+
+
+https://github.com/MasKobis/aniesomonomon/assets/158810071/6faa676e-0c22-452f-97ac-c7cb6ac3329c
+
+
+
 ## Kartu Lansia Jakarta
 
+
+https://github.com/MasKobis/aniesomonomon/assets/158810071/28631f8e-045f-4234-ba34-e99aac84ef38
+
+
+
 ## UMP DKI
+
+
+https://github.com/MasKobis/aniesomonomon/assets/158810071/0435a5cb-7855-4170-bb0f-ca70c3bbdda4
+
+
 ## Contract Farming dengan Gapoktan. 
+
+
+https://github.com/MasKobis/aniesomonomon/assets/158810071/d089470e-7d2d-4b8d-b1a4-9989ef610654
+
+
 ## KJP Plus.
+
 ## Sarana Jaringan Utilitas Terpadu (SJUT)
 ## Wajah Halte Bundaran HI
 ## Renovasi Gedung Kesenian Wayang Orang Bharata.
