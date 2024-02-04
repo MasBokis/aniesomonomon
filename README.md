@@ -2,7 +2,9 @@
 Kumpulan bukti kalo anies cuma bisa omon omon
 
 ## Jak Lingko
-![Jaklingko](images/jaklingko.mp4)
+https://github.com/MasKobis/aniesomonomon/assets/158810071/7a6ac125-d533-4f84-8a28-1ffb787e5e0c
+
+
 
 ## PBB-P2 Gratis untuk NJOP Rumah Kurang dari Rp2 Miliar di Jakarta
 ## Jakarta International Stadium (JIS)
