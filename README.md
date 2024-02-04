@@ -274,9 +274,11 @@ https://github.com/MasBokis/aniesomonomon/assets/158810071/b69da293-d25b-4e7b-8c
 ![jpo](https://github.com/MasBokis/aniesomonomon/assets/158810071/4e5b5b09-b8f0-4d86-8f6c-ed30870408f5)
 
 ## Disclaimer
+This page is for non-commercial use to spread words about Anies.
+
 Semua konten page ini diambil dari Twitter [Air Jeruk](https://twitter.com/OrangeAqua55) di [tweet ini](https://twitter.com/OrangeAqua55/status/1750695517376676179)
 
-Aku full nyomot karena tidak seniat itu bikin konten 🙏
+Gw full nyomot karena tidak seniat kak Orang Jeruk dalam merangkai semua hasil omon2 pak Anies🙏
 
 I hope Kak Orange Jeruk understands
 
